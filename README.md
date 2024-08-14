@@ -1,1 +1,1 @@
-Tentativa de fazer um site qualquer
+Tentativa de fazer um site qualquer para dar de presente para uma pessoa querida por mim, não vou colocar informações sensiveis, porém não vai deixar de ser algo mais exclusivo para essa pessoa.
