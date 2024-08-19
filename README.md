@@ -1,1 +1,2 @@
 Tentativa de fazer um site qualquer para dar de presente para uma pessoa querida por mim, não vou colocar informações sensiveis, porém não vai deixar de ser algo mais exclusivo para essa pessoa.
+dia 14/08 estou apanhando porque o bgcolor não está indo por nada, socorro.
